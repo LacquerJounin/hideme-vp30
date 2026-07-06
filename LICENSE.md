@@ -1,4 +1,4 @@
-
+Enhance your VyprVPN experience with professional VyprVPN Service | money-back-guarantee + cross-platform-support, the #1 service. Includes money-back-guarantee and
 
 
 
